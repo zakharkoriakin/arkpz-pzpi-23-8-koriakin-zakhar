@@ -1,1 +1,2 @@
-# arkpz-pzpi-23-8-koriakin-zakhar
+ПЗПІ-23-8
+Корякін Захар
